@@ -1,4 +1,4 @@
-HELLO
-im Xuan 
+Hello, I am Xuan
 2007
-🇻🇳❤🔥
+🇻🇳❤
+Ytb: XuanVP
